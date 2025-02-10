@@ -2,7 +2,7 @@
 
 *Are you looking for ways to get more Pokéballs and free PokéCoins in Pokémon GO? You’ve come to the right place! In this article, we’ll show you exactly how to stock up on these valuable resources in 2025 without spending real money. Plus, we’ll tell you about a special, time-limited offer that will give you a head start on your Pokémon GO journey. Read on to find out how to take advantage of this amazing free offer!*
 
-### [✅👉CLICK HERE TO GET NOW FREE!](https://freeforyou.xyz/pokemon/go/free/)
+### [✅👉 CLICK HERE TO GET NOW FREE](https://justfree.xyz/pokemon/go/)
 
 ### Introduction: The Importance of Pokéballs & PokéCoins in Pokémon GO
 
